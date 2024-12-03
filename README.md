@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @ClumsyCute
-- 👀 I’m interested in learning computer languages
+- 👀 I’m interested in enhancing my tech skills
 - 🌱 I’m currently a Microbiologist
-- 📫 How to reach me BHAVYABODDETI8801@GMAIL.COM
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I am National team Rifle Shooter
 <!---
